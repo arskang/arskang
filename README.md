@@ -2,7 +2,7 @@ Hi 👋 My name is Edder Silva
 
 ---
 
-🌍  I'm based in Ciudad Madero, Tamaulipas, México
+🌍  I'm based in Tampico, Tamaulipas, México
 
 ### Skills
 
